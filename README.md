@@ -7,7 +7,7 @@ that have 3 page
 3. slide wallpaper
 
 and few feature like responsive and other.
-this template still upgrade n inovation.
+this template still need upgrade n inovation.
 
 so still enjoy
 
