@@ -11,4 +11,4 @@ this template still upgrade n inovation.
 
 so still enjoy
 
-KEEP HUNGRY, KEEP FOOLISH by Steve Jobs
+STAY HUNGRY, STAY FOOLISH by Steve Jobs
